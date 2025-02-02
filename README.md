@@ -2,7 +2,7 @@
 - 👀 I’m interested in Teaching and Learning process✔
 - 🌱 I’m currently learning Python😃
 - 💞️ I’m looking to collaborate on job 😇
-- 📫 How to reach me ...
+- 📫 insta. facebook
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
