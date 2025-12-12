@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MoushumiSkoSangma, Welcome to my Bio 🙌 🤗
-- 👀 Code/ Create / Developer
+- 👀 Code/ Create /program
 - turning coffee into code 😃
 - 💞️ Crafting clean code
 -    Making machine do things.
